@@ -1,2 +1,2 @@
 # Nitro
-$ Jangan Lupa Follow Wir 🤓👍
+# Jangan Lupa Follow Wir 🤓👍 #
